@@ -1,0 +1,1 @@
+# ai-studio-shorts-auto-clips
